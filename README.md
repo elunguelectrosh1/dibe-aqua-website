@@ -23,8 +23,8 @@ Professional water filtration systems for Namibia.
 4. Auto-deploy on every update
 
 ## Contact
-- Email: info@dibeaqua.com
-- Phone: +264 81 500 0000
-- WhatsApp: +264 81 500 0000
+- Email: exoticminimalist40@gmail.com
+- Phone: +264 857499175
+- WhatsApp: +264 857499175
 
 © 2025 DIBE AQUA INVESTMENTS CLOSE CORPORATION
